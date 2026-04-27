@@ -1,18 +1,21 @@
 # ***yuau project files release***
 
-###### *hell yeah*
+ *hell yeah*
 
 *\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~*
 
 
 
-*i promised i would do this one day so here they are yippee*
+*i promised i would do this one day so here it is yippee*
 
-~~Most files are for among us related projects sorry.~~
+- Most of thess are for among us fnf and im sorry.
+- currently all .fla files so adobe flash/animate are required to open them
 
 
 
-I will add to this as i find more files and more projects come out ok.
+I will add to this as i find more files and more projects come out ok
+
+um uhh Fortnite 🫐
 
 
 
